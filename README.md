@@ -13,3 +13,7 @@ Meu nome é Pedro Jove
 
 
 ![](https://media1.tenor.com/m/WFnd-81I2U4AAAAd/tyrese-haliburton-push-it-down.gif)
+
+
+Projeto do super trunfo scratch
+https://scratch.mit.edu/projects/976749418
